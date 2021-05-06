@@ -2,7 +2,7 @@
 
 - 👀 I’m interested in culture, danse, communication, nature and technology
 
-- 💞️ I’m a communication manager
+- 💞️ I’m communication manager
 
 - 🌱 I’m currently learning web development
 
